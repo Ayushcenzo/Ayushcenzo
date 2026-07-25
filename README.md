@@ -1,1 +1,1 @@
-<img width="2940" height="1656"  src="https://github.com/user-attachments/assets/b612ce2d-fd25-4746-89c8-1a05c6b54cd5" />
+<img width="2944" height="1656" alt="zoroo" src="https://github.com/user-attachments/assets/2b1390be-bea3-452e-bd4b-5c98ef9c522b" />
